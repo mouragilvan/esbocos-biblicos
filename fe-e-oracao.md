@@ -28,7 +28,7 @@ Lucas 17 e Lucas 18
 ## Respostas a questões retóricas do por que não oramos
 <ul>
     <li>Porque achamos que Deus não se importa</li>
-    <li>E porque não vai fazer diferença (Já orei tanto que me cansei)</li>    
+    <li>E porque não vai fazer diferença (Já orei tanto que me cansei)</li>  
 </ul>
 
 ## Consideração final em Lucas 18:8

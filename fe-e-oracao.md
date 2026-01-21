@@ -25,7 +25,6 @@ Lucas 17 e Lucas 18
 </ul>
 
 
-
 ## Respostas a questões retóricas do por que não oramos
 <ul>
     <li>Porque achamos que Deus não se importa</li>

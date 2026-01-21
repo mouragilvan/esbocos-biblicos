@@ -10,8 +10,8 @@ Lucas 17 e Lucas 18
 
 ## Perguntas 
 <ul>
-    <li>Onde está Deus no meu sofrimento<li>
-    <li>Deus se importa?<li>
+    <li>Onde está Deus no meu sofrimento</li>
+    <li>Deus se importa?</li>
 </ul>
 
 ## Consideração final em Lucas 18:8
